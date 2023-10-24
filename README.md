@@ -1,1 +1,1 @@
-Third year Business Information Technology student, specializing in ICT-infrastructure and Software Development. Corporate Affairs Manager at Atkins ry.
+Fourth year Business Information Technology student, specializing in ICT-infrastructure and Software Development. Vice Chairperson at Atkins ry.
